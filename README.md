@@ -12,5 +12,5 @@
   <img src="https://file.garden/adyaWBdfCBC6Cnua/Untitled2151_20260719094154.png" alt="" width="300">
 </p>
 <p align="center"> since the death of god,
-<p align="center"> there's been a vacancy been a vacancy open.
+<p align="center"> there's been a vacancy open.
 <p align="center"> <sub> you could fill that void. 
